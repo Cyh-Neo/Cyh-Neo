@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently a Computer Science student.<br>I'm looking for help with web development and web3 industry knowledge.<br>I'm currently learning about cryptocurrency and blockchain technology.<br>I like playing volleyball and online games like Csgo and rainbow 6
+💻I'm currently a Computer Science student.<br>👺I'm looking for help with web development and web3 industry knowledge.<br>I'm currently learning about cryptocurrency and blockchain technology.<br>🏐I like playing volleyball and online games like Csgo and Rainbow 6
 
 
 ## 🌐 Socials:
